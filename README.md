@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Allisky.github.io/rsschool-cv/cv
